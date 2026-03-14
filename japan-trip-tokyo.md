@@ -347,3 +347,11 @@ Nice walk in a park, main temple worth to see
 ![](media/tokyo/tokyo-meijijingu-2.png)
 
 ![](media/tokyo/tokyo-meijijingu-3.png)
+
+# Roppongi
+
+Big missing on my list... It's another party district where all the big clubs are located (in the vicinity of the `Roppongi Station`). I've been twice in Tokyo, but never been there. But these big clubs with techno / electro music is not my style at at all...
+
+# Minato
+
+## Tokyo Tower
