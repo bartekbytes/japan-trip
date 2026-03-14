@@ -98,6 +98,10 @@ Some random pictures from `Akihabara`:
 
 ![](media/tokyo/tokyo-akihabara-4.png)
 
+![](media/tokyo/tokyo-akihabara-5.png)
+
+![](media/tokyo/tokyo-akihabara-6.png)
+
 And of course - `gachapon`!
 
 Millions of them in Akihabara, but of course you’ll find them everywhere in Japan, so no worries (I tried to get Vegeta from Dragon ball, but without luck :/).
@@ -201,3 +205,145 @@ Honestly, if you have time, you can go for a walk, but if short of time - I’d 
 ![](media/tokyo/tokyo-yanakaginza-5.png)
 
 ![](media/tokyo/tokyo-yanakaginza-6.png)
+
+# Shinjuku
+
+Business district , with Kabuki-cho sub-district for fun and entertainment.
+
+![](media/tokyo/tokyo-shinjuku-map.png)
+
+## Kabuki-cho
+
+Main party / restaurant / fun sub-district of `Shinjuku`. Good to be in the afternoon / evening to see all the neons lit.
+But during the day also good, espectially if you combine with `Tokyo Metropolitan Building`
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-1.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-2.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-3.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-4.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-5.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-8.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-9.png)
+
+### Godzilla's Head.
+
+It's visible when you enter the `Central Rd`.
+When I was the first time, there was a show (I think every hour) - light and "Godzilla's rooooar!" ;) But when I was 2nd time, Godzilla was resting as it was under maintainance hahaha. You can go close to the head, just enter the building below the head (it's a cinema, then should be signs, these is also a mini-museum about all Godzilla movies (mostly posters)).
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-6.png)
+
+![](media/tokyo/tokyo-shinjuku-kabukicho-7.png)
+
+### Golden Gai
+
+![](media/tokyo/tokyo-shinjuku-goldengai-1.png)
+
+![](media/tokyo/tokyo-shinjuku-goldengai-2.png)
+
+## Tokyo Metropolitan Government
+
+There are 2 observatories in the building. They are free and view is amazing.
+It's like must do!
+
+When I was first time, only the South Observatory was open.
+Second time - both North and South were open.
+
+Personally for me South is was better.
+If you have time you can see both, if not, just go to South.
+The only one thing is that North is open till like 9pm or so (night views), and South only 5pm If I remember...
+
+With good view you can even see Mt. Fuji (South Observatory only).
+
+Kind of hard to find the entrance, because you enter via some kind of parking lot...
+
+![](media/tokyo/tokyo-shinjuku-met-1.png)
+
+![](media/tokyo/tokyo-shinjuku-met-2.png)
+
+![](media/tokyo/tokyo-shinjuku-met-3.png)
+
+![](media/tokyo/tokyo-shinjuku-met-4.png)
+
+![](media/tokyo/tokyo-shinjuku-met-5.png)
+
+![](media/tokyo/tokyo-shinjuku-met-6.png)
+
+# Shibuya
+
+Another busy, business district. TBH - I didn't explore this area too much.
+I just went there to see the famous `Shibuya Crossing` and `Hachiko` dog statue.
+
+But I saw the crossing just from the street level, so you know a lot of people in different directions.
+But it's the best to see from above. There is Starbucks just above (you can see on my picture too).
+I don't know other observation points, I'm afraid :/ I'm not that familiar with this district...
+
+There is a new building built like 2-3 years ago with an open-air observation deck called `Shibuya Sky`. Last time I tried to get in, but tickets are like sold 1 month upfront, strange...
+
+![](media/tokyo/tokyo-shibuya-1.png)
+
+![](media/tokyo/tokyo-shibuya-2.png)
+
+# Gotokuji Temple
+
+![](media/tokyo/tokyo-gotokuji-map.png)
+
+Really off the beaten path and far away from the center of Tokyo, but it's a quite unique temple, as it's about the lucky cat. Nice pictures there.
+
+I had plenty of time, so I went there, and I really liked it as it's sth different, but I don't think you'll find time for this, so I'll just skip it.
+
+But attaching some pictures anyway.
+
+On the map I also indicated `Shimokitazawa` - it's a small neighbourhood with a kind of hip vibe. I stopped there because I went to `Gotokuji` anyway, but can be totally skipped if not going to `Gotokuji`.
+
+`Gotokuji Temple`:
+
+![](media/tokyo/tokyo-gotokuji-1.png)
+
+![](media/tokyo/tokyo-gotokuji-2.png)
+
+![](media/tokyo/tokyo-gotokuji-3.png)
+
+![](media/tokyo/tokyo-gotokuji-4.png)
+
+![](media/tokyo/tokyo-gotokuji-5.png)
+
+`Shimokitazawa`
+
+![](media/tokyo/tokyo-shimokitazawa-1.png)
+
+![](media/tokyo/tokyo-shimokitazawa-2.png)
+
+# Harajuku / Meiji Jingu
+
+Harajuku is a street fashion area for young. Vintage clothings, cosplay.
+Also a lot of animal cafes.
+
+I'd say for me was OK to see, not my thing, but it's close to Meiji Jingu Park and Temple, and you need to get off at Harajuku station anyway, so I'd spend 30 min to walk the main `Takeshita Street` (+ maybe some smaller ones) and then go from these to `Meiji Jingu`.
+
+BUT if you are lack of time in Tokyo, I'd maybe skip both `Harajuku` and `Meiji Jingu`...
+
+![](media/tokyo/tokyo-harajuku-map.png)
+
+## Harajuku
+
+![](media/tokyo/tokyo-harajuku-1.png)
+
+![](media/tokyo/tokyo-harajuku-2.png)
+
+![](media/tokyo/tokyo-harajuku-3.png)
+
+## Meiji Jingu
+
+Nice walk in a park, main temple worth to see
+
+![](media/tokyo/tokyo-meijijingu-1.png)
+
+![](media/tokyo/tokyo-meijijingu-2.png)
+
+![](media/tokyo/tokyo-meijijingu-3.png)
