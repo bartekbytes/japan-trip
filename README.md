@@ -1,6 +1,6 @@
 # japan-trip
 
-Destinations
+Destinations:
 
 - [Tokyo](japan-trip-tokyo.md)
 - [Kyoto](japan-trip-kyoto.md)
