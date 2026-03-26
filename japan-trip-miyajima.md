@@ -3,6 +3,16 @@
 - I arrived to Miyajima around midday
 - I stayed overnight - and I REALLY recommend this! (once all daily groups are gone it's even better vibe)
 
+![](media/miyajima-map-1.png)
+
+(1) Main shopping street / road next to the pier.
+
+![](media/miyajima-map-2.png)
+
+(1) Shrine and Torii Gate
+(2) Daishoin
+(3) Main area to have a nice walk
+
 # Main shopping street / road next to the pier.
 
 - Food options: stalls, restaurants: super big and cheap oysters and maple cookies that are made there in small batches.
