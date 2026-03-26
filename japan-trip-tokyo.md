@@ -17,7 +17,8 @@ I recommend to visit this area twice: during the day and in the evening (or comb
 
 - `Nakamise Shopping Street`
 - `Temple area`
-- `Sumida Park` - for me was Ok, it’s optional, but you’re flying on Sakura season, so actually may not be optional, but rather must see :)
+- `Sumida Park` - for me was Ok, it’s optional, but you’re flying on Sakura season,
+  so actually may not be optional, but rather must see :)
 
 **During the evening:**
 
@@ -25,7 +26,7 @@ I recommend to visit this area twice: during the day and in the evening (or comb
 - Also many restaurants will be open in the evening.
 - Nice walk in alleys in the area.
 
-Also in the evening, when shops are closed, may of them have this picturesque “gates”.
+Also in the evening, when shops are closed, may of them have picturesque “gates”.
 
 If you want to see a nice view over the temple and shopping street, you can go to the `Asakusa Culture Tourist Information Center`
 (it’s opposite to Kaminarimon Gate, I marked it on the map above too). Go to the top floor, as there is a viewing deck (small, though).
@@ -36,7 +37,7 @@ As this is actually tourist info, you can get some maps/leaflets too. For me as 
 
 I walked a bit on `Sumida Park`, then crossed `Sumida River` to go to the `Head Office of Asahi company`. Nickname of this building is “golden poop”, you can deduct from the pictures online why ;) This is the company that make `Asahi` beer (kind of Feldschlossen in Switzerland, so the largest one, but taste MUCH better than Feldschlossen hahaha).
 
-I went there, because they have a nice bar with their various beers with a great view over Tokyo (pictures below), but honestly I’m not sure if it’s worth to go with kids, not much to do for them, so they will be bored when you will be drinking beer I guess.
+I went there, because they have a nice bar with their various beers with a great view over Tokyo, but honestly I’m not sure if it’s worth to go with kids, not much to do for them, so they will be bored when you will be drinking beer I guess.
 
 # Akihabara
 
@@ -49,18 +50,20 @@ and just stroll along the main street with some smaller streets too. Many, many 
 
 Some most famous:
 
-- Radio Kaikan
-- Super Potato
-- Animate
-- Yodobashi
-- Akihabara Gachapon Hall
-- BicCamera
+- Radio Kaikan: 10 floors of manga, anime, cards, ...
+- Super Potato: vintage video games, consoles
+- Animate: manga, video games
+- Yodobashi: various electronics
+- Akihabara Gachapon Hall: dozens, hundrets of gachapons (but you'll find them everywhere on the streets too)
+- BicCamera: various electronics
 
-Also, you have to go one of these gaming centers (I think it’s now not named `SEGA`, unfortunately, but still the building is red I think).
-It’s like few floors of some games, arcade, but also like playing drums, dancing, playing guitar, etc…
+> [!TIP]I think in most of these shops you can apply for a tax return. I did sth with tax return for my yukata,
+> but I don't really remember the procedure, but if you plan to buy sth more expensive, it's worth checking.
+
+Also, you have to go one of these gaming centers (I think it’s now not named `SEGA`, unfortunately, but still the building is red I think). It’s like few floors of some games, arcade, but also like playing drums, dancing, playing guitar, etc…
 Both parents and kids will have fun. I had ;)
 
-Another brand that have many of these arcade game branches is called `Taito Game Station`.
+Another brand that have many of these arcade game branches across Japan is called `Taito Game Station`.
 
 And of course - `gachapon`!
 
@@ -128,6 +131,11 @@ When I was the first time, there was a show (I think every hour) - light and "Go
 
 ### Golden Gai
 
+Few short streets that become alive at night. Small bars (4-8 people max). Sometimes Japanese-only. Quite often you need to
+pay for sitting (table price). Super mixed feelings. Once in area worth so see, but sitting in bars there... A lot of them
+can be a tourist scam. And kind of expensive. I didn't go, there are similar places with less scam. This one is the most
+famous from them, though.
+
 ## Tokyo Metropolitan Government
 
 There are 2 observatories in the building. They are free and view is amazing.
@@ -161,9 +169,11 @@ Really off the beaten path and far away from the center of Tokyo, but it's a qui
 
 I had plenty of time, so I went there, and I really liked it as it's sth different, but I don't think you'll find time for this, so I'll just skip it.
 
-But attaching some pictures anyway.
+Check pictures on the Internet.
 
-On the map I also indicated `Shimokitazawa` - it's a small neighbourhood with a kind of hip vibe. I stopped there because I went to `Gotokuji` anyway, but can be totally skipped if not going to `Gotokuji`.
+# Shimokitazawa
+
+It's a small neighbourhood with a kind of hip vibe. I stopped there because I went to `Gotokuji` anyway, but can be totally skipped if not going to `Gotokuji`.
 
 # Harajuku / Meiji Jingu
 
@@ -174,12 +184,6 @@ I'd say for me was OK to see, not my thing, but it's close to Meiji Jingu Park a
 
 BUT if you are lack of time in Tokyo, I'd maybe skip both `Harajuku` and `Meiji Jingu`...
 
-## Harajuku
-
-## Meiji Jingu
-
-Nice walk in a park, main temple worth to see
-
 # Roppongi
 
 Big missing on my list... It's another party district where all the big clubs are located (in the vicinity of the `Roppongi Station`). I've been twice in Tokyo, but never been there. But these big clubs with techno / electro music is not my style at at all...
@@ -187,3 +191,10 @@ Big missing on my list... It's another party district where all the big clubs ar
 # Minato
 
 ## Tokyo Tower
+
+Went there when I was there 2nd time. I didn't go to the top, just this middle section (The same as with Eiffel Tower hahha).
+Went in the afternoon/evening time. For me was really worth to go! Some nice pictures taken. Close to the Tower there is also a small, nice shrine and park.
+
+# Tokyo Skytree
+
+Big missing on my list... Can't tell you anyting except that next time I shall go ;)
