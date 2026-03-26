@@ -1,3 +1,9 @@
+# Background
+
+- I spent there 9 nights in total, including 1 day more because I missed my return-to-Europe flight because of partying too much on the night before my fight ;)
+- First part, I had my hotel in Asakusa; second part, I had my hotel in Shinjuku Kabukicho.
+- I could spend anothe 2 weeks easily :D
+
 # Asakusa
 
 ## Senso-ji
